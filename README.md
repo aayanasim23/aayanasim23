@@ -4,4 +4,4 @@
 - 💬 Ask me about planes!
 - 📫 How to reach me: aayan.asim23@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Future Pilot 👀
+- ⚡ Fun fact: Working on my Private Pilot License (PPL) 👀
